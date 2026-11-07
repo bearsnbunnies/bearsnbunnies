@@ -4,6 +4,6 @@
 
 <div align="center">
 
-$\color{#71abd0}{art⠀⠀by⠀⠀bitako on tumblr}$
+$\color{#71abd0}{art⠀⠀by⠀⠀bitako⠀⠀on⠀⠀tumblr}$
 
 <a href="https://cobaltpng.atabook.org">ata</a> $\color{#2b5861}{⟢}$ <a href="https://guns.lol/cobaltpng">guns.lol</a> $\color{#2b5861}{⟢}$ <a href="https://en.pronouns.page/@Cobaltpng/">pronouns</a> $\color{#2b5861}{⟢}$ <a href="https://meettheplayer.straw.page">strawpage</a>
